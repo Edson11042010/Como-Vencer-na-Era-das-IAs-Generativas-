@@ -26,7 +26,8 @@ Curso: [Microsoft AI for Tech – Criando Prompts Inteligentes](https://web.dio.
 
 # 😁 OBRIGADA
 Obrigada a todos que entraram, aos profefessores fique com Deus!!
-Obrigada DIO!
+
+Obrigada DIO!🚀
 
 
 
